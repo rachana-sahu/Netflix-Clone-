@@ -89,4 +89,4 @@ Contributions are highly welcome. Feel free to fork, clone, make pull requests, 
 - To anyone reading this... _You're awesome!_
 
 That being said
-_<p align="center">To the Front... to the Back... End to End... cut no slack. Making ends meet. lol</p>_
+_<p align="center">Yeeeeepiiiiii</p>_
